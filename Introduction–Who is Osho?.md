@@ -1,5 +1,3 @@
----
-
 #Introduction–Who is Osho?
 
 >**Be – don't try to become." – Osho**
