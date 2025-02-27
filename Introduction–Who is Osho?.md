@@ -15,17 +15,17 @@ Osho’s unique approach to spirituality does not rely on rigid dogmas or strict
 
 ## Core Teachings of Osho
 
-###** 1️⃣ Meditation – The Path of Awareness**
+###**1️⃣ Meditation – The Path of Awareness**
 
 > “Meditation is a simple process of watching your own mind. Not fighting with the mind. Not trying to control it either.”
 
 Unlike traditional meditation methods that emphasize control, Osho’s approach is about **watching and witnessing the mind** without resistance. He introduced various meditation techniques such as:  
-✔️** Dynamic Meditation** – Releasing repressed emotions through movement  
-✔️** Kundalini Meditation** – Awakening inner energy  
-✔️** Vipassana** – Silent witnessing of thoughts  
-✔️** No-Mind Meditation** – Letting go of all mental chatter
+✔️**Dynamic Meditation** – Releasing repressed emotions through movement  
+✔️**Kundalini Meditation** – Awakening inner energy  
+✔️**Vipassana** – Silent witnessing of thoughts  
+✔️**No-Mind Meditation** – Letting go of all mental chatter
 
-###** 2️⃣ Love & Freedom – The Two Wings of the Soul**
+###**2️⃣ Love & Freedom – The Two Wings of the Soul**
 
 >“ Love cannot be learned, it cannot be cultivated. It comes only when the mind is silent and the heart is singing.”
 
@@ -35,7 +35,7 @@ Osho spoke extensively on **love, relationships, and freedom**. He taught that:
 - True love is **not possession** but a state of **being**.
 - Freedom and love go hand in hand; **without freedom, love turns into slavery**.
 
-###** 3️⃣ Awareness & Conscious Living**
+###**3️⃣ Awareness & Conscious Living**
 
 > “The moment you accept yourself, you become beautiful.”
 
@@ -49,9 +49,9 @@ Osho emphasized **living in the present moment with full awareness**. He taught:
 > “You have been given false values, you have been conditioned for all kinds of stupid things.”
 
 Osho’s teachings often criticized:  
-❌ * Religious dogmas** – He believed religions exploit fear.  
-❌ * Societal conditioning** – Society creates **slaves, not free individuals**.  
-❌ * Blind beliefs** – He encouraged people to question everything and seek their own truth.
+❌ *Religious dogmas** – He believed religions exploit fear.  
+❌ *Societal conditioning** – Society creates **slaves, not free individuals**.  
+❌ *Blind beliefs** – He encouraged people to question everything and seek their own truth.
 
 ###** 5️⃣ Zorba the Buddha – Balance Between Material & Spiritual Life**
 
@@ -59,7 +59,7 @@ Osho’s teachings often criticized:
 
 Osho’s vision was not about **renouncing the world** but rather **enjoying life while being deeply meditative**. He believed in a **balanced life** where material success and inner spiritual growth coexist.
 
-##** Osho's Commune & Global Influence**
+##**Osho's Commune & Global Influence**
 
 - In the 1970s, Osho attracted **thousands of seekers from around the world**.
 - He established the **Osho Ashram in Pune, India**, which became a center for spiritual transformation.
@@ -68,22 +68,22 @@ Osho’s vision was not about **renouncing the world** but rather **enjoying lif
 
 Despite facing resistance from governments and religious institutions, Osho’s teachings continue to **inspire millions worldwide**.
 
-##** Osho’s Most Famous Books**
+##**Osho’s Most Famous Books**
 
 Osho never wrote books; his talks were recorded and transcribed into books. Some of the most famous ones include:
 
-📖** The Book of Secrets** – 112 meditation techniques for self-discovery  
-📖** Courage: The Joy of Living Dangerously** – How to embrace change fearlessly  
-📖** Awareness: The Key to Living in Balance** – Developing mindfulness  
-📖** Love, Freedom, Aloneness** – The path to deep relationships and inner peace  
-📖** The Art of Dying** – Understanding death as a transformation
+📖**The Book of Secrets** – 112 meditation techniques for self-discovery  
+📖**Courage: The Joy of Living Dangerously** – How to embrace change fearlessly  
+📖**Awareness: The Key to Living in Balance** – Developing mindfulness  
+📖**Love, Freedom, Aloneness** – The path to deep relationships and inner peace  
+📖**The Art of Dying** – Understanding death as a transformation
 
 ##** Why Osho’s Teachings Are Relevant Today**
 
-✅ * He challenges blind beliefs** – Encourages individual thinking.  
-✅ * He promotes meditation** – A tool for modern stress and anxiety.  
-✅ * He redefines love & relationships** – Teaching freedom in love.  
-✅ * He bridges material & spiritual life** – No need to renounce the world.  
+✅ *He challenges blind beliefs** – Encourages individual thinking.  
+✅ *He promotes meditation** – A tool for modern stress and anxiety.  
+✅ *He redefines love & relationships** – Teaching freedom in love.  
+✅ *He bridges material & spiritual life** – No need to renounce the world.  
 ✅ *He speaks to today’s seekers** – His teachings are timeless, fresh, and rebellious.
 
 ##** Final Thought from Osho**
